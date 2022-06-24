@@ -1,0 +1,2 @@
+# CanSat-2022-S.R.I.
+GRUPO S.R.I
